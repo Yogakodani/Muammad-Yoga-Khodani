@@ -1,1 +1,1 @@
-# Muammad-Yoga-Khodani
+# Muhammad-Yoga-Khodani
